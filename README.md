@@ -2,3 +2,4 @@
 
 [𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔✭](https://en.pronouns.page/@Our16bitwars)
 [𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆✧](https://troopsstainedsanity.straw.page/)
+[𝑷𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕✶](https://br.pinterest.com/TroopsShootingAtStars/)
