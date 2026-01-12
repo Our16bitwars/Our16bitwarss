@@ -5,3 +5,4 @@
 [𝑷𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕✶](https://br.pinterest.com/TroopsShootingAtStars/)
 [𝑰𝒃𝒊𝒔✰](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
 [𝑹𝒆𝒏𝒕𝒓𝒚❦](https://rentry.co/adachiyo)
+[𝒈𝒖𝒏𝒔.𝒍𝒐𝒍❥](https://guns.lol/troopstainedend)
